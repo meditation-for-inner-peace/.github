@@ -1,1 +1,3 @@
-# .github
+# *Meditation for Inner Peace: Beginner’s Guide to Mindfulness & Healing*
+## *Explore the transformative power of meditation with this beginner-friendly guide. Learn simple techniques to reduce stress, boost focus, and find lasting calm in your daily life. Start your meditation journey today!* [More details…](https://spiritualkhazaana.com/web-stories/meditation-for-inner-peace/)
+## #Meditation #Mindfulness #MeditationForBeginners #InnerPeace #StressRelief #GuidedMeditation  #Spirituality #Healing  #CalmMind #SelfCare #MentalWellness #MeditationPractice #DailyMeditation #MindfulLiving #PositiveVibes
